@@ -1,0 +1,1 @@
+# A-Solid-o-do-QA-e-Como-Transformar-Esse-Sentimento-em-For-a
